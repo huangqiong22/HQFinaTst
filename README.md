@@ -1,2 +1,2 @@
-ssssfyinformation.cceeeessss123eeee
+ssssfyinformation.cceeee
 
